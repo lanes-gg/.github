@@ -2,5 +2,4 @@
 
 This is a private organisation created by ``@helplanes``.
 
-An organisation aiming to have maximum privacy, and enabling people from various cities and colleges connect and bond at a better stage.
-Created with love, for better community connectivity. 
+A company driven by a single person, focusing on creating products worth using, worth spending time on, and something that will help the world itself!
